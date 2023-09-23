@@ -1,1 +1,0 @@
-# SE20UARI135_AI-in-industry
